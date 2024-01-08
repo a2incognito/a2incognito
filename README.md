@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @a2incognito
 - 👀 I’m interested in code
-- 🌱 I’m currently learning cpp, java, dâtbase,...
+- 🌱 I’m currently learning no thing =)))
 - 💞️ I’m looking to internship IT job
 - 📫 Contact me: mchien.incognito@gmail.com or fb.com/a2.incognito or instagram.com/in.cogni_to_
 
